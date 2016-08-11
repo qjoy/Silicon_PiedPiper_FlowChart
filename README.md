@@ -1,0 +1,2 @@
+# Silicon_PiedPiper_FlowChart
+用流程图绘制的方法，展示在美剧《硅谷》中描述的PiedPiped创业的起起伏伏
