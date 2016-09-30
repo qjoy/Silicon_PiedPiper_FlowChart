@@ -1,6 +1,6 @@
 Written by AlexQ
 
-![PiedPiper](http://upload-images.jianshu.io/upload_images/1168623-233b9e5a5025174b.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![PiedPiper](http://7xox5k.com1.z0.glb.clouddn.com/%E7%A1%85%E8%B0%B7%E5%89%A7%E7%85)
 >总是有很多人描述着互联网创业多么激动人心；
 总是有很多人描述着互联网创业多么艰难；
 总是有很多人描述着互联网创业多少英豪纷起；
